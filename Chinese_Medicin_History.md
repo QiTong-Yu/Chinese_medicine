@@ -58,8 +58,10 @@ Today, when people continue to be threatened by epidemics, we cannot but review 
 
 Beijing DouWang Technology Co., Ltd. (n.d.).灵枢经. https://book.douban.com/subject/1447230/
 
-黄龙祥. (2015). 扁鹊医学特征. 中国中医基础医学杂志(2), 203-208.
-
-叶青,周亚东. (0). 华佗五禽戏的养生之道. 现代养生(6期), 271-272.
 
 Fan, J. P., Mu, Y. P., & Wang, X. M., Wu. H. G. (2009). ACTA UNIVERSITATIS TRANDITIONIS MEDICALIS SINENSIS PHARMACOLOGIAEQUE SHANGHAI . Moxibustion Characteristics of Huangdi’s Mingtang Moxibustion Classic, 32(2), 19–22. https://www.ixueshu.com/document/c5951ac9594994eeb9e58aa751f0f9b1318947a18e7f9386.html
+
+黄龙祥. (2015). 扁鹊医学特征. 中国中医基础医学杂志(2), 203-208.
+
+叶青,周亚东. (0). 华佗五禽戏的养生之道. 现代养生(6期), 271-272.
+
